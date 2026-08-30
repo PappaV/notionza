@@ -1,0 +1,1 @@
+Blog post for NotionZA — Notion templates for SA businesses
